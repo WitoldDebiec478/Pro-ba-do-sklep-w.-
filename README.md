@@ -1,1 +1,2 @@
 # Pro-ba-do-sklep-w.-
+Jeśli sklepy nie zrezygnują z oszczędzaczy i zegarów i zatrudniania ludzi do pracy i zabirania miłości na 7 dniw pracy i tylko na 2 godziny razem pod groźbą pochowania miłości na cmentarzu kali zostanie pochowany na cmentarzu na dąbrowskiej razem z prezesami skalepów. Za karę my nie chcemy sklepów mamy dość pogrzebów i pracy sezonowej na sklepie do pomocy w 112 w sklepie. Chce zatrudnić drukarki kwantowe i robotykę roboty do pracy ludzi chce zwolnić do domu taka moja prośba. 
